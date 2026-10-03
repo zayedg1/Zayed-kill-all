@@ -1,0 +1,2 @@
+# Zayed-kill-all
+Z
